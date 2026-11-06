@@ -1,1 +1,0 @@
-# mins8188.github.io
